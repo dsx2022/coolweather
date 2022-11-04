@@ -1,10 +1,2 @@
 adwafdawfsajfbasisk jsdgfv a
-sdafjdsafhbsdakjnbfsdjdsafg 
-sdfjdsbntk sajisdfaghfvbaSF 
-ASDFJBSADJMFSADIUFHSDAA A
-SDAj
-SRDDFNSKERM 
-ASDDg	KJHNl;DFSMGHESKLFG ZwASFKFDSAFA
-ESDLFJSDHGFESFVGJKSAHGAW L	
-;SMFNDSG KJOESFBJHESDG S,LXFV SDFklsdafnoasd
-sdajhbfaskolfmsdaflksdfgvsagfndadasdawfasdaadaraf
+sdafjdsafhbsdakjnbfsdjdsafg
